@@ -1,2 +1,2 @@
 # Devlet.tech
-Devlet.tech.
+www.Devlet.tech.
